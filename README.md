@@ -1,2 +1,2 @@
-# Teorijska-mehanika
-Druga godina 
+# Druga godina
+
